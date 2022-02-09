@@ -12,7 +12,7 @@ Enjoy! <br>
 
 Puoi trovarmi qui:<br>
 
-- [Sito Internet](www.federicorucci.com)
+- [Sito Internet](https://www.federicorucci.com)
 - [Pagina Linkedin](https://www.linkedin.com/in/federico-rucci-78606989/)
 - [Canale Telegram](https://t.me/federicoruccicom)
 - [Canale Twitch](https://www.twitch.tv/federicorucci)
